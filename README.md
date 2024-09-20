@@ -13,8 +13,6 @@
 ### Telegram公告频道: https://t.me/flybitvip_channel
 ### 可用地址1：https://flybit.bond
 ### 可用地址2：https://flybit.cyou
-### 可用地址3：https://fly-bit-2.xyz
-### 可用地址4：https://fly-bit-3.xyz
 
 ---
 
