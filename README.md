@@ -12,8 +12,8 @@
 ### 永久地址: https://flybit.vip (被墙，需挂梯子)
 ### Telegram公告频道: [https://t.me/flybitvpn](https://t.me/flybitvpn)
 ### Telegram讨论群组: [https://t.me/flybitvip](https://t.me/flybitvip)
-### 可用地址1：[https://www.flybit5.vip](https://www.flybit5.vip)
-### 可用地址2：[https://www.flybit6.vip](https://www.flybit6.vip)
+### 可用地址1：[https://www.52fb.shop](https://www.52fb.shop)
+### 可用地址2：[https://www.fb2025.xyz](https://www.fb2025.xyz)
 
 
 ---
