@@ -13,7 +13,7 @@
 ### Telegram公告频道: [https://t.me/flybitvpn](https://t.me/flybitvpn)
 ### Telegram讨论群组: [https://t.me/flybitvip](https://t.me/flybitvip)
 ### 可用地址1：[https://www.52fb.cc](https://www.52fb.cc)
-### 可用地址2：[https://www.52fb.shop](https://www.52fb.shop)
+### 可用地址2：[https://www.lovefb.cc](https://www.lovefb.cc)
 
 
 ---
