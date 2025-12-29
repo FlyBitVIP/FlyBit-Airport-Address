@@ -12,7 +12,7 @@
 ### 永久地址: https://flybit.vip (被墙，需挂梯子)
 ### Telegram公告频道: [https://t.me/flybitvpn](https://t.me/flybitvpn)
 ### Telegram讨论群组: [https://t.me/flybitvip](https://t.me/flybitvip)
-### 可用地址1：[https://www.fb2026.cc](https://www.52fb.cc)
+### 可用地址1：[https://www.fb2026.cc](https://www.fb2026.cc)
 ### 可用地址2：[https://www.lovefb.cc](https://www.lovefb.cc)
 
 
