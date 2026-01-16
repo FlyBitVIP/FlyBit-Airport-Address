@@ -2,6 +2,10 @@
 
 ---
 
+![LOGO](images/logo.png)
+
+---
+
 ## 可用优惠券（九折）
 ### flybit
 
