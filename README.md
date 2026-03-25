@@ -17,7 +17,7 @@
 ### Telegram公告频道: [https://t.me/flybitvpn](https://t.me/flybitvpn)
 ### Telegram讨论群组: [https://t.me/flybitvip](https://t.me/flybitvip)
 ### 可用地址1：[https://www.fb7777.shop](https://www.fb7777.shop)
-### 可用地址2：[https://www.fb9999.shop](https://www.fb9999.shop)
+### 可用地址2：[https://www.fb123.best](https://www.fb123.best)
 
 
 ---
