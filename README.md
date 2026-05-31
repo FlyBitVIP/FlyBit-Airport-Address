@@ -17,7 +17,7 @@
 ### Telegram公告频道: [https://t.me/flybitvpn](https://t.me/flybitvpn)
 ### Telegram讨论群组: [https://t.me/flybitvip](https://t.me/flybitvip)
 ### 可用地址1：[https://www.flybit2026.org](https://www.flybit2026.org)
-### 可用地址2：[https://www.flybit.network](https://www.flybit.network)
+### 可用地址2：[https://1.flybit.network](https://1.flybit.network)
 
 
 ---
