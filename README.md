@@ -17,7 +17,7 @@
 ### Telegram公告频道: [https://t.me/flybitvpn](https://t.me/flybitvpn)
 ### Telegram讨论群组: [https://t.me/flybitvip](https://t.me/flybitvip)
 ### 可用地址1：[http://fb.fastfastfast.buzz](http://fb.fastfastfast.buzz)
-### 可用地址2：[http://www.fastfastfast.site](http://www.fastfastfast.site)
+### 可用地址2：[https://www.fastfastfast.best](https://www.fastfastfast.best)
 
 
 ---
