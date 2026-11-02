@@ -2,7 +2,7 @@
 
 ---
 
-![LOGO](images/logo.png)
+![LOGO](images/flybit.png)
 
 ---
 
